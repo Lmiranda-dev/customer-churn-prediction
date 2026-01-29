@@ -150,7 +150,6 @@ Florida International University (August 2025, Cum Laude)
 ## Acknowledgments
 
 - Florida International University - Department of Engineering
-- Google-Affiliated Senior Design Program
 - Kaggle - Telco Customer Churn Dataset
 
 ## License
