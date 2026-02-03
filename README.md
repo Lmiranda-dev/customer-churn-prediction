@@ -145,7 +145,7 @@ This model enables telecommunications companies to:
 Florida International University (August 2025, Cum Laude)
 
 - Email: Luismiranda156@gmail.com
-- LinkedIn: [linkedin.com/in/luis-miranda-bb68a329a](https://linkedin.com/in/luis-miranda-bb68a329a)
+- LinkedIn: [linkedin.com/in/luismiranda56](https://www.linkedin.com/in/luismiranda56)
 
 ## Acknowledgments
 
